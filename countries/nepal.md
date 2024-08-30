@@ -14,3 +14,4 @@
 - Birthplace of the Buddha
 - Mostly Hindu (~80%)
 - Gurkha soldiers have served in the British army since the colonization of India. They are known for wielding Kukri knives and being fierce fighters.
+- National dish is Dal (split lentils in a stew like texture). Eaten across the Indian subcontinent.
